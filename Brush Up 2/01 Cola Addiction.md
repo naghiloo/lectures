@@ -19,7 +19,7 @@ An hour after drinking the beverage, a sugar crash will begin, causing irritabil
 It's not only applicable to Cola, but to all caffeinated fizzy drinks.
 - - - -
 
-Cola is comparable to heroin, in its stimulation of the brain's reward and pleasure centers. The intense sweetness of Cola as a result of its high sugar content should make us throw up as soon as it enters the body. However, the phosphoric acid in the beverage dulls the sweetness, enabling us to keep the drink down.
+The intense sweetness of Cola as a result of its high sugar content should make us throw up as soon as it enters the body. However, the phosphoric acid in the beverage dulls the sweetness, enabling us to keep the drink down.
 
 As such, it is no surprise that sugary drink consumption is associated with an array of health conditions. According to the Harvard School of Public Health, people who drink 1-2 cans of sugary drinks daily are 26% more likely to develop type 2 diabetes.
 
