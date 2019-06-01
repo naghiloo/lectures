@@ -1,4 +1,4 @@
-# The Arash archer
+# Arash The archer
 
 Abraham Lincoln, Mosaddegh, Chamran and so on. There are the names that the history will never forget, but why?
 each of them, in their respective field, had a major breakthrough and did great things. Today I'm going to talk about legend, whose symbols are the honor, duty, and dignity.
