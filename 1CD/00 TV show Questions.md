@@ -4,14 +4,14 @@ Hello. Welcome to the JLoo Show. I’m Javad and I am here today with …
 Welcome back to the JLoo Show.
 
 1.	Which is more important, truth or happiness?
-	a.	Happiness, easily. What good is knowing the truth if you aren't happy? But what point is there in being happy, if you're living a lie? What's the point of living at all if you're not happy?
-	b.	Truth. Blissful ignorance is still ignorance, and that would bother me more than knowing the truth.
-	c.	I would imagine that depends on exactly what truth you know. There are happy truths and sad truths. We're all going to die is a truth, and some will find that comforting and some will be saddened by it
-	d.	Happiness is a choice we make...but you can't choose to know the truth or not...someone has to choose to tell you
-	e.	I've got to disagree with happiness being a choice. You can choose to try to be happy, but there is no guarantee that you will succeed. And you can choose to act happy, but that doesn't mean that you really are.
-	f.	True enough...I guess that's what life is...trying
-	g.	It would be unfortunate to have to choose between truth and happiness, especially if truth was your happiness, happiness your truth...
-	h.	Love is way above truth & or happiness. Love will give you both.
+	- Happiness, easily. What good is knowing the truth if you aren't happy? But what point is there in being happy, if you're living a lie? What's the point of living at all if you're not happy?
+	- Truth. Blissful ignorance is still ignorance, and that would bother me more than knowing the truth.
+	- I would imagine that depends on exactly what truth you know. There are happy truths and sad truths. We're all going to die is a truth, and some will find that comforting and some will be saddened by it
+	- Happiness is a choice we make...but you can't choose to know the truth or not...someone has to choose to tell you
+	- I've got to disagree with happiness being a choice. You can choose to try to be happy, but there is no guarantee that you will succeed. And you can choose to act happy, but that doesn't mean that you really are.
+	- True enough...I guess that's what life is...trying
+	- It would be unfortunate to have to choose between truth and happiness, especially if truth was your happiness, happiness your truth...
+	- Love is way above truth & or happiness. Love will give you both.
 2.	If you had a time machine, would you go back in time or visit the future? How long and why?
 3.	If you had a secret superpower what would you want it to be? And what would you do with it?
 4.	How do you describe your ideal partner?
