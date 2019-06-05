@@ -1,4 +1,4 @@
-# Judging others apearance
+# Judging others appearance
 
 Our life is involved by connecting with others. It doesn't matter you are making a new friendship, presenting your new product or dancing with your partner. What matters is that you should have a general knowingness about others in the first contact. Most people think that personality plays an important role in knowing the characteristic of people and it should be better to pay attention to, instead of their appearance. But as we all know trusting others for the first is inevitable; because it takes time to know a person. Even if you had a lot of communications with different people, you cannot find out one person's honesty until the passage of time. A good way to have a better communication is to define some patterns that are originated from personality but appearing in the person's appearance and explore that person with these rules. So the major question here is that what should these rules be?
 
